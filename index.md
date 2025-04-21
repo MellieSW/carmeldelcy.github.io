@@ -7,7 +7,7 @@ Transitioning into cybersecurity through:
 - Hands-on labs with [Tools, e.g., Wireshark, Splunk]  
 - Documenting my journey   
 
-![https://imgur.com/a/carmel-delcy-cybersecurity-professional-headshot-interview-2025-FiqB0Hm ](https://www.flickr.com/photos/202606629@N03/54458751517/in/dateposted-public)
+!https://i.imgur.com/uJOVFSW.jpg
 *Alt text: "Carmel Delcy, cybersecurity professional in training"*  
 
 ## Connect  
